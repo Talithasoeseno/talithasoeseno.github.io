@@ -1,1 +1,0 @@
-# talithasoeseno.github.io
